@@ -5,7 +5,7 @@ Weinberg, Gabriel
 
 **Traction = growth** 
 
-## **Traction channels
+## Traction channels
 (customer acquisition channels)
 
 Startups get traction through nineteen different channels:
